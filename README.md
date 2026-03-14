@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Shivam Sengar Good Boy
+# 💫 Hi 👋, I'm Shivam Sengar
 **A passionate ML Engineer Trainee**
 
 Email Me 👉 ✉️ **shivamswngar4321@gmail.com** For Collaboration/Project or Anything Else. 😊😊
